@@ -2,3 +2,5 @@
 
 ## « Quand ça deviendra cinglé, délirant, ce ne sera plus la mémoire passive, ce sera la mémoire en folie : le rêve »
 
+## On peut dire qu'une personne formée pour toujours par le rêve, qu'elle a fait ses inhumanités à fond... D'autant mieux que les rêves classiques, les premiers rêves qui visitent l'enfance, loin d'être naïfs, sont #atrides et se nourissent de tragédie.
+
